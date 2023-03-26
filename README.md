@@ -1,1 +1,1 @@
-Hi! i'm a electronic and computing stdudent!
+Hi! i'm an electronic and computing stdudent!
